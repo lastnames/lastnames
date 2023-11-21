@@ -3,4 +3,5 @@
 <p align="center"> did sys . possible audhd ☆
         social anxiety ++ . minor
 <p align="center"> read the <a href="https://rentry.co/myrthle">2nd rentry</a> for sys rentry 
-<p align="center"> =--⠀⠀< nice guy ballad 3⠀⠀--=
+<p align="center"> mostly afk all day almost everyday.
+<p align="center"> =--⠀⠀< islanders 3⠀⠀--=
